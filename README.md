@@ -6,7 +6,7 @@ https://www.linkedin.com/in/zlisien/ | zlisien@edgestaffing.com
 Summary
 ---
 
-I'm a NH based Technical Recruiter focused on Software, Data, and Product (UI/UX) oriented roles. I currently work with Edge Staffing and the two main reasons I joined this startup of a team is these are actually areas of interest to me, and there is a strong focus on building good relationships (with both clients and candidates).  
+I'm a NH based Technical Recruiter focused on Software, Data, and Product (UI/UX) oriented roles. I currently work with Edge Staffing and the two main reasons I joined this startup of a team is these are areas I actually have a passion for, and there is a strong focus on building good relationships!  
 
 If you're in these areas and looking for opportunities, definitely reach out and connect! Especially if you're in New England or the East Coast.   
 
